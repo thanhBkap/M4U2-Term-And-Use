@@ -8,7 +8,7 @@ By downloading, installing, and/or using M4U2 App, you acknowledge that you have
 
 2. M4U2 app includes third-party dictionary websites. We are not responsible for their accuracy or reliability. Inappropriate or unavailable dictionary websites may be removed from the app.
 
-3. 4english does not link to websites nor own their content. The contents are compiled for educational purposes only, which aims to help users learn Math.
+3. M4U2 does not link to websites nor own their content. The contents are compiled for educational purposes only, which aims to help users learn Math.
 
 4. About VIP account
 
